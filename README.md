@@ -1,0 +1,2 @@
+# premium-harness-001-harness-making-draft-horse-col
+Stop wrestling with ill-fitting collars that cause sores and wasted leather—design a custom-fit draft horse collar that matches your horse's exact shoulder measurements.  This Notion template eliminates the guesswork in harness making by providing a structured framework for recording and iterating on collar designs. From initial measurements to fin
